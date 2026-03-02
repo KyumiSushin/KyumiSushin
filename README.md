@@ -1,5 +1,4 @@
-<a href="https://x.com/KyumiShin">x / twitter</a> ` <a href="https://tiktok.com/@kyumi_shin">tiktok</a>
-
+`` socials .ᐟ ; <sub><a href="https://x.com/KyumiShin">x / twitter</a> ` <a href="https://tiktok.com/@kyumi_shin">tiktok</a></sub>
 
 #
 
